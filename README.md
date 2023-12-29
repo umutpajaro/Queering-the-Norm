@@ -31,4 +31,4 @@ The first conclusion that I came up with after making this first study with the 
 Table of how I systematize the results and conclusions
 
 # Ways to engage
-Email to comments and more information: project@umutpajaro.site
+Email to comments and more information: umut@umutpajaro.site
